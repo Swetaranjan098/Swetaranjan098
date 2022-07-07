@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Swetaranjan
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python programming
+-  📫 How to reach me Email:-swetaranjan098@gmail.com ,Linkedin:-linkedin.com/in/sweta-ranjan-644129221 
